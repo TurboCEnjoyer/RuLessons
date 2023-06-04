@@ -15,3 +15,4 @@ https://www.youtube.com/watch?v=IvVpbNaSk6k - "The Diamond Arm / Бриллиа�
 Soviet films for children:  
 https://www.youtube.com/playlist?list=PL3RYZO9qYh_wyHqHQZIiE3PY-HrjP5Eyv - "The Adventures of the Elektronic / Приключения Электроника"  
 https://www.youtube.com/playlist?list=PLZeBIkPLTsqooPgXiNEypQoWOLozre_xf - "Guest from the Future / Гостья из будущего"  
+https://www.youtube.com/watch?v=u341NKLZHjw - "Guest from the Future / Гостья из будущего" (another version)  
